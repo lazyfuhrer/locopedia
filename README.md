@@ -1,3 +1,3 @@
-LocoPedia
+LocoPedia - Will be updated
 
 GLORY!
